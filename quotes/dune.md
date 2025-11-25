@@ -1,1 +1,3 @@
-May thy knife chip and shatter
+Fear is the mind-killer.
+- "Fear is the mind-killer."
+- "The spice must flow."
